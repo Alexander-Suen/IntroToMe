@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Artanis-tera 
-- 👀 I’m interested in LOL, medicine, statistics
+- 👀 I’m interested in LOL, medicine and statistics
 - 🌱 I’m currently learning oncology and machine learning
 - 💞️ I’m looking forward to becoming an excellent doctor! A lifesaver!
 - 📫 mhsun29@zju.edu.cn
